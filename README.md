@@ -6,7 +6,7 @@
   * Genesis Cartagena-Marrero: IT Manager
   * Nick Ahern: Communications and Logistics Director
   * Christina Nguyen: Graphic Designer
-  * Will Jackson: Marketing Director
+  * Will Jackson: Marketing Director/Project Leader
 
 ### Team Contact Information:
 
